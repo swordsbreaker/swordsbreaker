@@ -1,4 +1,4 @@
-<br> formerly arospecdelilahkeen / swordsmaiden.
+<br> formerly swordsmaiden / arospecdelilahkeen.
 <br> self-proclaimed loner of hydrangea isle.
 
 <br>👾 emil or sword.
