@@ -1,5 +1,5 @@
 <br> formerly swordsmaiden / arospecdelilahkeen.
-<br> self-proclaimed loner of hydrangea isle.
+<br> i love punctuation. can you tell?
 
 <br>👾 emil or sword.
 <br> • 19yo agender aroace, he/any prns.
